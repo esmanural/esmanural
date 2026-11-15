@@ -28,5 +28,5 @@ Here are some of the projects I've been working on:
 ---
 
 ### 📫 Let's Connect
-* **LinkedIn:** [esmanur-ural](https://www.linkedin.com/in/esmanur-ural)
-* **Email:** esmanur.ural@akademiata.edu.pl
+* **LinkedIn:** [esmanur-ural](https://www.linkedin.com/in/esmanur-ural-b91060351)
+* **Email:** esmaanural@gmail.com
